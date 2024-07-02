@@ -1,1 +1,1 @@
- https://Yana-mia.github.io/rsschool-cv/cv
+ https://Yana-mia.github.io/rsschool-cv/
